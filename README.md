@@ -1,2 +1,1 @@
-# home
-https://keybase.io/home
+# [home](https://keybase.io/home)
